@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👩‍💻 I'm Computer Engineer & IT Recruitment Executive
+👩‍💻 I'm Computer Engineer & Talent & Employee Experience Manager
 <br>
 💼 I'm working at Crs Soft
 <br>
